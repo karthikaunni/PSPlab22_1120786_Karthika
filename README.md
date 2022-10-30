@@ -1,1 +1,0 @@
-# PSPlab22_1120786_Karthika
